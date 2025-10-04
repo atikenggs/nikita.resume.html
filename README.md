@@ -1,1 +1,0 @@
-# nikita.resume.html
